@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+I have never really documented my self-study. So, I am trying this way rather than the traditional note-taking method.
